@@ -1,1 +1,1 @@
-# 1nttgithub.io
+# 1ntt.github.io
